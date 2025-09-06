@@ -1,1 +1,1 @@
-# Lambda-Latte-Caf-
+# Lambda-Latte-Cafe-
